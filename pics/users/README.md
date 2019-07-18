@@ -1,0 +1,1 @@
+WSZYSTKIE ZDJĘCIA W TYM FOLDERZE POCHODZĄ ZE STRONY: https://vertez.pl/profil-klanu/MAJO
